@@ -37,3 +37,4 @@ Please read only after watching full video!
   - Please wait for  correction.
 - IDFC - We can buy considering the arbitrage of 16%
 - Tata motor DVR - We can buy considering the arbitrage and the new deals
+- Titan overvalued don't enter at this level 
