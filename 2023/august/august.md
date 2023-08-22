@@ -9,13 +9,9 @@
 #### Notes
 
 - Gold Price will be flat for foreseeable future and hence gold retail stocks like Kalyan, Thangamaiyl & Titan will perform well
-
 - PG Invit is attractive. Keep acquiring for 7-8% returns
-
 - IDFC is 14.12% discount from IDFC 1st bank.
-
 - Tata Metaliks is 8.95% discount from Tata Steel.
-
 - Tata motor DVR is also 8.6% discount from Tata motors as of today closing.
 
 
