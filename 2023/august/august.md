@@ -25,8 +25,7 @@
 | Video Link | https://youtu.be/EnSNQfPe1Zk
 | Video Title |  இந்த பங்குகள் இப்போதைக்கு வேண்டாம்!!! \| Anand Srinivasan \| 
 
-Summary:
-Please read only after watching full video!
+#### Notes
 
 - TMB - We can consider if price comes below Rs. 510
   - As insider trading increased the share
