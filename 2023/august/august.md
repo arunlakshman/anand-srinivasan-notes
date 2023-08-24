@@ -76,9 +76,26 @@
 |---|---|
 | Video Link | https://youtu.be/-o0vXGVSorI?si=R1IKidvQetXLLAmY
 | Video Title | லாபம் குறைய வாய்ப்பு இருக்கு!! \|Anandsrinivasan\| 
+
 #### Notes
 
 - Natco - Reports are good & this stock will cross 1K. Considerable but risky
 - IDFC - We can buy considering the arbitrage of 16%
 - Consider Tata metalic 
+- Consider SouthIndian bank
 - Tata Consumer Products - Expensive at this rate
+
+### August 24, 2023
+
+#### Video Details
+| | |
+|---|---|
+| Video Link | https://youtu.be/uZaGQgU2JRg?si=4Uod3JDOM6VdMAje
+| Video Title |  Karnataka வங்கியின் முக்கிய திட்டம்!! \| Anand Srinivasan \| 
+
+#### Notes
+
+- IDFC - We can buy considering the arbitrage of 16%
+- Karnataka Bank - Considerable at this rate
+- Consider HCL, Infosys, SouthIndian bank
+- Book profit int NATCO, StoveKraft, MuthootFin, Manapuram
