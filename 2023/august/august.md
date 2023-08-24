@@ -54,7 +54,6 @@
 
 ### August 22, 2023
 
-
 #### Video Details
 | | |
 |---|---|
@@ -69,3 +68,17 @@
 - IDFC - We can buy considering the arbitrage of 16%
 - Tata motor DVR - We can buy considering the arbitrage and the new deals
 - Titan overvalued don't enter at this level 
+
+### August 23, 2023
+
+#### Video Details
+| | |
+|---|---|
+| Video Link | https://youtu.be/-o0vXGVSorI?si=R1IKidvQetXLLAmY
+| Video Title | லாபம் குறைய வாய்ப்பு இருக்கு!! \|Anandsrinivasan\| 
+#### Notes
+
+- Natco - Reports are good & this stock will cross 1K. Considerable but risky
+- IDFC - We can buy considering the arbitrage of 16%
+- Consider Tata metalic 
+- Tata Consumer Products - Expensive at this rate
