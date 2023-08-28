@@ -99,3 +99,17 @@
 - Karnataka Bank - Considerable at this rate
 - Consider HCL, Infosys, SouthIndian bank
 - Book profit int NATCO, StoveKraft, MuthootFin, Manapuram
+
+### August 24, 2023
+
+#### Video Details
+| | |
+|---|---|
+| Video Link | https://youtu.be/oGCRkT7Bxnw?si=s5J2rFZyuuIf-BBp
+| Video Title | Chandrayaan தொடர்பான பங்குகள்!!! இந்த துறையில் நீங்க வாங்குவீங்களா? 
+
+#### Notes
+
+- TMB - Still undervalued, Considerable at this rate
+- MuthootFin, Dr Reddy, NATCO ,StoveKraft - Book Profit and exit
+- Manapuram - Exit Completely
