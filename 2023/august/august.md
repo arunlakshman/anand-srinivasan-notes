@@ -100,7 +100,7 @@
 - Consider HCL, Infosys, SouthIndian bank
 - Book profit int NATCO, StoveKraft, MuthootFin, Manapuram
 
-### August 24, 2023
+### August 25, 2023
 
 #### Video Details
 | | |
@@ -111,5 +111,22 @@
 #### Notes
 
 - TMB - Still undervalued, Considerable at this rate
-- MuthootFin, Dr Reddy, NATCO ,StoveKraft - Book Profit and exit
+- MuthootFin, Dr Reddy, NATCO, StoveKraft - Book Profit and exit
 - Manapuram - Exit Completely
+
+
+### August 28, 2023
+
+#### Video Details
+| | |
+|---|---|
+| Video Link | https://youtu.be/aroTNtAOWDg?si=CM4Ctx6SBclMTXLg
+| Video Title |  இன்றும் விலை குறைவாகத்தான் இருக்கிறது!!! \| Anand Srinivasan \| 
+
+#### Notes
+
+- Wait for reliance IPO
+- Sun pharma - Acquisition in dermetology sector. Consider at this point
+- Dr Reddy, NATCO - Still undervalued, Considerable at this rate
+- Titan - Fundamentally consilating its position 
+- IDFC - We can buy considering the arbitrage of 16%
